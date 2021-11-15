@@ -28,4 +28,4 @@ Vitamins are **organic compounds** that are required in small amounts in our die
 
 >To ensure good health: eat lightly, breathe deeply, live moderately, cultivate cheerfulness, and maintain an interest in life. - ...
 
-https://media0.giphy.com/media/SY2hQpAMLnuxtgLT5C/giphy.gif
+![image](https://user-images.githubusercontent.com/76660005/141772212-d8005dbb-7156-46ca-8e31-41d57c128d13.png)
